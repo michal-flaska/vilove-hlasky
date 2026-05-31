@@ -342,3 +342,5 @@
 - proste bratislava podunajske biskupice alebo ludia to nazyvaju aj rodne sidlo ciganov a madarov
 
 - mexicka kosacka
+
+- ty vyzeras ako ten clovek ktory by sa pocas sexu plieskal sam po riti
