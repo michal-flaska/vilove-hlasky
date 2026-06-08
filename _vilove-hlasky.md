@@ -344,3 +344,5 @@
 - mexicka kosacka
 
 - ty vyzeras ako ten clovek ktory by sa pocas sexu plieskal sam po riti
+
+- podla mna zachvilu zistime ze miskove stredne meno je marko
