@@ -352,3 +352,5 @@
 - TY HAJZEL, PO TOM VSETKOM CO SOM PRE TEBA SPRAVIL MA IDES UDAT NA POLICIU ZA MOJE INDICKE KORENE A ŽIDOVSKY NOS?! JA DUFAM ZE ZAJTRA ZA TEBOU DOJDE RISO A POTOM CO SI KUPIS JEHO MERCH DOSTANES AKO DARČEK NITKU
 
 - ked ta vidia na urade tak ti davaju czpo preukazy ako giveaway
+
+- nieje dost moznych kombinaci charakterov vratane cislic a specialnych znakov na klavesnici ktorymi by som vedel opisat to sklamanie co som zrovna pocitil z tejto sitaucie
