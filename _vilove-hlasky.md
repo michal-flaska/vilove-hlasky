@@ -354,3 +354,5 @@
 - ked ta vidia na urade tak ti davaju czpo preukazy ako giveaway
 
 - nieje dost moznych kombinaci charakterov vratane cislic a specialnych znakov na klavesnici ktorymi by som vedel opisat to sklamanie co som zrovna pocitil z tejto sitaucie
+
+- this guy eats cereal in the shape of bricks btw
