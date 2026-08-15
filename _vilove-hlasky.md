@@ -358,3 +358,5 @@
 - this guy eats cereal in the shape of bricks btw
 
 - moje hrdlo mi podrezat mozes, ale moj bicykel mi nikdy nerozoberies
+
+- you are so slow we could time you on a calendar
