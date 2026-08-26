@@ -360,3 +360,5 @@
 - moje hrdlo mi podrezat mozes, ale moj bicykel mi nikdy nerozoberies
 
 - you are so slow we could time you on a calendar
+
+- hmm, ta sol chuti slano
