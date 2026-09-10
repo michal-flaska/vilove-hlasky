@@ -364,3 +364,5 @@
 - hmm, ta sol chuti slano
 
 - ides slopat s nami alebo proti nam?
+
+- vevericka hovori zrozumitelnejsie nez kazdy jeden z vas
