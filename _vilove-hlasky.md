@@ -362,3 +362,5 @@
 - you are so slow we could time you on a calendar
 
 - hmm, ta sol chuti slano
+
+- ides slopat s nami alebo proti nam?
