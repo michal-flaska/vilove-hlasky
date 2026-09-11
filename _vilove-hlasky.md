@@ -366,3 +366,5 @@
 - ides slopat s nami alebo proti nam?
 
 - vevericka hovori zrozumitelnejsie nez kazdy jeden z vas
+
+- roztrhnem ti rit a spravim si z teba ulozny priestor
