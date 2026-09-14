@@ -376,3 +376,5 @@
 - dufam ze ked prides domov, otvoris chladnicku tak zistis ze tam mas iba horcicu a karbobrusku
 
 - a piece of paper is whiter than me
+
+- youre so fucking slow that the only way to time you is on a calendar
