@@ -368,3 +368,5 @@
 - vevericka hovori zrozumitelnejsie nez kazdy jeden z vas
 
 - roztrhnem ti rit a spravim si z teba ulozny priestor
+
+- cestovatel casom? nah kamo, casovatel cestou
