@@ -370,3 +370,5 @@
 - roztrhnem ti rit a spravim si z teba ulozny priestor
 
 - cestovatel casom? nah kamo, casovatel cestou
+
+- tak dobru cestu domov prajem, dufam ze ta cestou zastavi dopravny inspektor a osobne ti vysvetli ze tvoje spravanie je v rozpore s medzinarodnymi dohodami. potom nech ta obklopia aspon styri kamiony, zacnu trubit a ty tam budes stat jak posledny clovek co si neprecital navod na pouzitie. ked konecne prides domov, otvor dvere, pozri sa do zrkadla a skus pochopit preco sa ti vlastna rodina pri veceri vyhyba ocami. prajem prijemny vecer, nech ti wifi funguje iba v jednej izbe a nech sa ti kazde video zastavi presne 1 sekundu pred plot twistom
