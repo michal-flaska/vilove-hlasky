@@ -378,3 +378,5 @@
 - a piece of paper is whiter than me
 
 - youre so fucking slow that the only way to time you is on a calendar
+
+- you have the aim of a beaver with parkinsons
