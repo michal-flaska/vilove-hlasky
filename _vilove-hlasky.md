@@ -381,3 +381,7 @@
 - youre so fucking slow that the only way to time you is on a calendar
 
 - you have the aim of a beaver with parkinsons
+
+- uz sa ti niekedy stalo ze ked si si umyval bobra tak ti ten bobor odletel?
+
+- vilko uz sa ti niekedy stalo ze si tvoj sused z horneho poschodia kupil dvojtonoveho slona a ked ho kupal vo vani tak sa ti prepadol cez dve poschodia do obyvacky?
