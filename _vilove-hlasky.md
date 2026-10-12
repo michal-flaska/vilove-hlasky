@@ -388,4 +388,6 @@
 
 - hej ja som to cele videl cez tvoju orednu kameru medzitym ako som vencil ryby a plaval so psom v akvarku
 
-- uz sa ti niekedy stalo ze si soferoval po dialnici ale zrazu si si uvedomil ze si si svoj volant zabudol doma tak si nabural?
+- uz sa ti niekedy stalo ze si soferoval po dialnici ale zrazu si si uvedomil ze si si svoj volant zabudol doma vo vani tak si nabural?
+
+- ked som pedaloval svoje auto do obvhodu s bicyklami tak som zistil ze mi uletela strecha tak som vytiahol dazdnik a teleportoval sa do kauflandu
