@@ -387,3 +387,5 @@
 - vilko uz sa ti niekedy stalo ze si tvoj sused z horneho poschodia kupil dvojtonoveho slona a ked ho kupal vo vani tak sa ti prepadol cez dve poschodia do obyvacky?
 
 - hej ja som to cele videl cez tvoju orednu kameru medzitym ako som vencil ryby a plaval so psom v akvarku
+
+- uz sa ti niekedy stalo ze si soferoval po dialnici ale zrazu si si uvedomil ze si si svoj volant zabudol doma tak si nabural?
