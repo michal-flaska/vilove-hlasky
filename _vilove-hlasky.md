@@ -391,3 +391,7 @@
 - uz sa ti niekedy stalo ze si soferoval po dialnici ale zrazu si si uvedomil ze si si svoj volant zabudol doma vo vani tak si nabural?
 
 - ked som pedaloval svoje auto do obvhodu s bicyklami tak som zistil ze mi uletela strecha tak som vytiahol dazdnik a teleportoval sa do kauflandu
+
+- uz sa ti niekedy stalo ze mas lowk posledne 4 papiere hajzlaku tak lowk musis pouzit kazdy kus papieru zo vsetkych stran aj z takych ktore este nevoli invented?
+
+- nah radsej rybu, sak ju musim kazdy den vencit aby sa mohla vyblupblup na travnik ktory polievam kosackou
