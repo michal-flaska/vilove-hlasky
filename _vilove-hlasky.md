@@ -395,3 +395,5 @@
 - uz sa ti niekedy stalo ze mas lowk posledne 4 papiere hajzlaku tak lowk musis pouzit kazdy kus papieru zo vsetkych stran aj z takych ktore este nevoli invented?
 
 - nah radsej rybu, sak ju musim kazdy den vencit aby sa mohla vyblupblup na travnik ktory polievam kosackou
+
+- ts going straight to vilove hlasky right
