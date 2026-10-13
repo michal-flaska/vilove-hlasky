@@ -397,3 +397,5 @@
 - nah radsej rybu, sak ju musim kazdy den vencit aby sa mohla vyblupblup na travnik ktory polievam kosackou
 
 - ts going straight to vilove hlasky right
+
+- ktora z kuchariek na biskupickej je podla teba najviac tight?
