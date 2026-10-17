@@ -399,3 +399,5 @@
 - ts going straight to vilove hlasky right
 
 - ktora z kuchariek na biskupickej je podla teba najviac tight?
+
+- misko minule ked som padol do tvojeho kanala tak som nasledne objavil novy move ktory sa vola 我叫佩奇，這是我弟弟喬治。
