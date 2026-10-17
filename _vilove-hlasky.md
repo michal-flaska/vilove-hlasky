@@ -325,7 +325,7 @@
 
 - nieco ako bibkina baca
 
-- svoju spoluziacku alex som si premenoval alex ibrahim jedlicka piata
+- svoju spoluziacku alex som si premenoval asex ibrahim jedlicka piata
 
 - fetusinko
 
