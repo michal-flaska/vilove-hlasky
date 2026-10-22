@@ -403,3 +403,5 @@
 - misko minule ked som padol do tvojeho kanala tak som nasledne objavil novy move ktory sa vola 我叫佩奇，這是我弟弟喬治。
 
 - o com to meles ty cinsky bobor
+
+- michal ja ta jebem, tak si ma nasral ze sa ti vyserem do polievky
