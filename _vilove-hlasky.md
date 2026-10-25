@@ -411,3 +411,5 @@
 - to ako keby som michala flasku nazval turboslivka
 
 - ty horalka s prichutou mily, daj tam tu diakritiku a zapinaj tu slovensku klavesnicku lebo na teba zavolam 我叫佩奇，這是我弟弟喬治。
+
+- zober si to ako keby si jebal zvierata na farme, najskor ti to prejde ale skor ci neskor ta nachyta prasa
