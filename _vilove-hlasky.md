@@ -405,3 +405,7 @@
 - o com to meles ty cinsky bobor
 
 - michal ja ta jebem, tak si ma nasral ze sa ti vyserem do polievky
+
+- drz hubu ty hrosica
+
+- to ako keby som michala flasku nazval turboslivka
