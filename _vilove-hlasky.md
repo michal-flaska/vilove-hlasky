@@ -409,3 +409,5 @@
 - drz hubu ty hrosica
 
 - to ako keby som michala flasku nazval turboslivka
+
+- ty horalka s prichutou mily, daj tam tu diakritiku a zapinaj tu slovensku klavesnicku lebo na teba zavolam 我叫佩奇，這是我弟弟喬治。
